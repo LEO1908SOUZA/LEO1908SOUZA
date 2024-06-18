@@ -5,7 +5,4 @@ Boas vinsdas ao meu perfil❤❤
 - 😉Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos.
 Voce pode entrar em contato comigo
 00001135648669SP@al.educacao.sp.gov.br
-
-
-
 ![](https://giphy.com/gifs/kiszkiloszki-3oEjI53nBYOOEQgDcY)
