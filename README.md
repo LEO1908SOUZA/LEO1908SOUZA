@@ -7,4 +7,4 @@ Voce pode entrar em contato comigo
 00001135648669SP@al.educacao.sp.gov.br
 
 
-![](https://giphy.com/gifs/kiszkiloszki-3oEjI53nBYOOEQgDcY)
+![](https://github.com/LEO1908SOUZA/LEO1908SOUZA/assets/172433102/6f50836c-866a-4ff2-919f-86d7b30f5969)
