@@ -6,5 +6,4 @@ Boas vinsdas ao meu perfil❤❤
 Voce pode entrar em contato comigo
 00001135648669SP@al.educacao.sp.gov.br
 
-
-![](https://github.com/LEO1908SOUZA/LEO1908SOUZA/assets/172433102/6f50836c-866a-4ff2-919f-86d7b30f5969)
+![](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExZ3oweHZ1OXFlY3RzM2prdncxcW8xNmNpZGIxZm83MWFwNHcyNXpsMSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/l41YkGzJh2ejd6M6c/giphy.webp)
